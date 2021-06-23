@@ -1,1 +1,1 @@
-thanks for showing as different inbuilt and modules and hacking techniques
+thanks for showing as different inbuilt modules and hacking techniques
